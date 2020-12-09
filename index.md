@@ -1,3 +1,3 @@
 ## nothing yet here
 
-subcscibe to my [youtube channel](youtube.com/c/snakemi)
+subcscibe to my [youtube channel](https://www.youtube.com/c/snakemi)
